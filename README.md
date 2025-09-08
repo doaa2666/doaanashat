@@ -1,2 +1,2 @@
 # doaanashat
-SLKNKSDC GBSDCN.XM,BCDSIX ZK.NJX
+
